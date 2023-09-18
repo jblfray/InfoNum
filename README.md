@@ -1,1 +1,1 @@
-# Welcome to my Github! Enjoy
+# Welcome to my Github!
